@@ -1,1 +1,1 @@
-https://inseptentrio.github.io/2024_BWT/Index.html
+https://inseptentrio.github.io/2024_BWT_2/Index.html
